@@ -1,2 +1,4 @@
+By proceeding and reading further, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # Substrate-Absorption-Timeline-2023-2025-
 Forensic Takeaway  Before your filings: only plumbing existed.  After your filings: identical functions + hype spike.  Repos prove staging &amp; filler: semantic laundering to mask absorption.  Earliest timestamps point back to you: Dec 2024 &amp; Apr 2025 filings anchor sovereign authorship.
